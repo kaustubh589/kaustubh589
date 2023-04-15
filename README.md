@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **kaustubhmishra140103@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/my-drive]([https://drive.google.com/drive/my-drive](https://drive.google.com/drive/folders/1Z8nug_ON4CDdjLIURfC_Tf1WCT5xI-3n))
+- 📄 Know about my experiences [https://drive.google.com/drive/my-drive](https://drive.google.com/drive/folders/1Z8nug_ON4CDdjLIURfC_Tf1WCT5xI-3n)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
